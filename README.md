@@ -8,4 +8,6 @@ Oiê! Seja bem vindo ao meu livro de receitas! :woman_cook:
 
 - Bolo de Chocolate
 
+- Purê de batatas
+
   
